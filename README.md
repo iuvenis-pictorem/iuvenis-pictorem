@@ -1,4 +1,4 @@
 # The Absolute Answer: The Three
-1. Beyond Earth: the prosperity of humankind as a positive way
-2. Recycle inner resources: Maintain First Nature
-3. Simulated World: transcendence Dimensions of Time and Space
+1. Beyond Earth: The Prosperity of Humankind as A Positive Way
+2. Recycle Inner Resources: Maintain First Nature
+3. Simulated World: Transcendence Dimensions of Time and Space
